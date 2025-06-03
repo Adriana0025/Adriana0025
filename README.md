@@ -2,7 +2,10 @@ Hi! My name is Adriana Martinez Diaz. I'm an incoming 4th-year double majoring i
 
 - Work: Student Legal Intern for Services for Undocumented Students 
 - Pronouns: She/Her/Hers/Ella
-- Fun fact: I'm a twin 👯‍♀️
+- Fun facts:
+-  I'm a twin 👯‍♀️
+- I love Marvel 
+
 
 
 <!--
